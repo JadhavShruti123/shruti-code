@@ -40,7 +40,7 @@
   overview of application progress.
 ## 📫 Let's Connect!
 
-- 🔗 [LinkedIn](https://www.linkedin.com/in/shruti-jadhav-2b9870289))  
+- 🔗 [LinkedIn](https://www.linkedin.com/in/shruti-jadhav-2b9870289) 
 - 📧 Email: shrutijadhav7216@gmail.com
 
 ---
